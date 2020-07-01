@@ -1,2 +1,2 @@
 # skin.BingiefliX
- Bingie Mod that "Flix'es" you the Most !     ; )
+ The Bingie Mod That Flix's you the Most !   ; )
